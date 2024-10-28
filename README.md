@@ -1,12 +1,15 @@
-In the first age
-In the first battle
-When the shadows first lengthened
-One stood
+_In the first age_\
+_In the first battle_\
+_When the bloatware first lengthened_\
+_One stood_
  
-He chose the path of perpetual torment
-In his ravenous hatred he found no peace
-And with boiling blood he scoured the umbral plains
-Seeking vengeance against the dark VScoders who had wronged him
+_He chose the path of perpetual torment_\
+_In his ravenous configurations he found no peace_\
+_And with boiling blood he scoured the internet_\
+_Seeking vengeance against the VScoders who had wronged him_
  
-And those that tasted the bite of his sword named him
-The Neovimer.
+_And those that tasted the bite of his keyboard bindings named him_\
+_The Neovimer._
+
+---
+
